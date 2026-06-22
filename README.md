@@ -1,2 +1,0 @@
-# Alozaibi
-Alozaibi tribe Yemen 
